@@ -16,4 +16,4 @@ Olá! Eu sou um entusiasta de tecnologia e esportes com uma paixão por aprender
 ## Contato
 - Você pode me encontrar nas redes sociais e plataformas de comunicação relacionadas à tecnologia e jogos.
 
-![Minha Foto](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fshitpost-gif-1957782315179351868&psig=AOvVaw0mWXYgsdYi4DyYAimdB98L&ust=1728556677480000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMCpsc2NgYkDFQAAAAAdAAAAABAE)
+![Minha Foto](https://media1.tenor.com/m/GytwpJPOnzwAAAAC/shitpost.gif)
