@@ -10,10 +10,7 @@ Olá! Eu sou um entusiasta de tecnologia e esportes com uma paixão por aprender
 - **Academia:** Eu frequento academia regularmente, buscando manter uma rotina saudável e melhorar meu condicionamento físico.
 - **Futebol:** Amo jogar futebol nas horas vagas e sempre tento melhorar minhas habilidades no campo.
 
-## 🎮 Jogos
-- **Valorant:** Amasso geral no Valorant! Tenho habilidade estratégica e ótima mira no jogo, sempre buscando alcançar novos níveis de competitividade.
-
 ## Contato
 - Você pode me encontrar nas redes sociais e plataformas de comunicação relacionadas à tecnologia e jogos.
 
-![Minha Foto](https://media1.tenor.com/m/GytwpJPOnzwAAAAC/shitpost.gif)
+https://www.linkedin.com/in/leonardo-barros-185586274/?trk=opento_sprofile_details
